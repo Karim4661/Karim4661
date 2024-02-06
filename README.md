@@ -4,7 +4,7 @@
 - 💞️ I’m looking to collaborate on ...
 - 📫 How to reach me 
 - 😄 Pronouns:Karimmos
-- ⚡ Fun fact:
+- ⚡ Fun fact:i don't speack very well the english
 - i have an account on itch.io where i pubblic best games(are in under development)
 - my username in itch is "KarimK.Developer
 
