@@ -1,7 +1,7 @@
 - 👋 Hi, I’m @Karim4661
 - 👀 I’m interested in ...
-- 🌱 I’m currently learning the python and c++
-- 💞️ I’m looking to collaborate on ...
+- 🌱 I’m currently learning the python, c++ and c#
+- 💞️ I’m looking to collaborate on 
 - 📫 How to reach me 
 - 😄 Pronouns:Karimmos
 - ⚡ Fun fact:i don't speack very well the english
